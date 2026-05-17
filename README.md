@@ -1,11 +1,4 @@
 <div align="center">
-  
-<img width="200" height="151" alt="geto-suguru-suguru-geto" src="https://github.com/user-attachments/assets/f69929d7-fbf1-4b34-8307-45d7c355e5f4" />
-
-
-
-  
- [Atabook](https://flinstofu.atabook.org/) ദ്ദി◝ ⩊ ◜.ᐟ
 
  [𝙼𝚢 𝙶𝚒𝚛𝚕𝙵𝚛𝚒𝚎𝚗𝚍](https://github.com/xzuzui) . [𝙶f_𝚊𝚝𝚊𝚋𝚘𝚘𝚔!](https://xxzu.atabook.org/)  <h4 align="center">${\textsf{\color{#8440cb} love u zuu}}$
 
@@ -19,3 +12,8 @@
 
 
 <img width="96" height="96" alt="gojo-twerk-gojo-satoru" src="https://github.com/user-attachments/assets/1f768674-bd92-40aa-b885-24f9f185d628" />
+
+I like art
+
+
+<img width="667" height="672" alt="image" src="https://github.com/user-attachments/assets/7bf49793-b92f-45d9-b945-a20c01cfa6a5" />
