@@ -8,7 +8,7 @@
  [pronoun card](https://en.pronouns.page/@Tofu_Sushi)
  
 
-[Guns.Lol](https://guns.lol/moshi_tofu) - [Rentry](https://rentry.co/MoshiTofu)
+[Guns.Lol](https://guns.lol/moshi_tofu) - [Rentry](https://rentry.co/MoshiTofu) - [My X account](https://x.com/2ugurugeto)
 
 
 <img width="96" height="96" alt="gojo-twerk-gojo-satoru" src="https://github.com/user-attachments/assets/1f768674-bd92-40aa-b885-24f9f185d628" />
