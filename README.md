@@ -19,4 +19,5 @@
 I like art
 
 
-<img width="667" height="672" alt="image" src="https://github.com/user-attachments/assets/7bf49793-b92f-45d9-b945-a20c01cfa6a5" />
+<img width="736" height="735" alt="image" src="https://github.com/user-attachments/assets/febaccef-3f9c-48c4-aecb-10a359b9056b" />
+
