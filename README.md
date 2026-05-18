@@ -12,7 +12,7 @@
  [pronoun card](https://en.pronouns.page/@Tofu_Sushi)
  
 
-[Guns.Lol](https://guns.lol/moshi_tofu) - [Rentry](https://rentry.co/MoshiTofu) - [My X account](https://x.com/2ugurugeto)
+[Guns.Lol](https://guns.lol/2ugurugeto) - [Rentry](https://rentry.co/MoshiTofu) - [My X account](https://x.com/2ugurugeto)
 
 
 
