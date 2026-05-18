@@ -21,3 +21,7 @@ I like art
 
 <img width="736" height="735" alt="image" src="https://github.com/user-attachments/assets/febaccef-3f9c-48c4-aecb-10a359b9056b" />
 
+me and my gf: 
+
+<img width="100" height="100" alt="kzkCGT" src="https://github.com/user-attachments/assets/c886da51-28a6-4af1-a19d-8b58f9cda2d8" />
+
