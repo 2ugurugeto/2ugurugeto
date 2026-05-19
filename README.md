@@ -10,7 +10,8 @@
 
 Sushhiii
 
-<img width="431" height="408" alt="image" src="https://github.com/g/assets/57728464-b0ec-4e26-a45d-298aa1ed0552" />
+<img width="431" height="408" alt="image" src="https://github.com/user-attachments/assets/019d5a75-b737-408c-8c81-2becd85c0fb7" />
+
 
 
  [pronoun card](https://en.pronouns.page/@Tofu_Sushi)
