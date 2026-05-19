@@ -8,6 +8,10 @@
 
 <img width="200" height="151" alt="geto-suguru-suguru-geto" src="https://github.com/user-attachments/assets/92101b44-ef49-474f-baed-926672104415" />
 
+Sushhiii
+
+<img width="431" height="408" alt="image" src="https://github.com/g/assets/57728464-b0ec-4e26-a45d-298aa1ed0552" />
+
 
  [pronoun card](https://en.pronouns.page/@Tofu_Sushi)
  
