@@ -1,6 +1,8 @@
 <div align="center">
 i ship / Gojo x Geto / Yuji x Megumi / gay men only / Sukuna x Me 😄
 
+meow >:3
+
 <img width="132" height="132" alt="image" src="https://github.com/user-attachments/assets/39bdace1-1d81-4ed6-80aa-0b45690ad579" />
 
 
