@@ -8,9 +8,13 @@
 
 <img width="200" height="151" alt="geto-suguru-suguru-geto" src="https://github.com/user-attachments/assets/92101b44-ef49-474f-baed-926672104415" />
 
-Sushhiii
+Suguru
 
-<img width="431" height="408" alt="image" src="https://github.com/user-attachments/assets/019d5a75-b737-408c-8c81-2becd85c0fb7" />
+<img width="99" height="55" alt="tumblr_01cd4272541ab8d4691da803fc5621ff_619acfc7_100" src="https://github.com/user-attachments/assets/f7ecff08-25d4-4e1c-adf8-186df0b38311" />
+<img width="99" height="55" alt="tumblr_3e033b5c12e0fe6493374a7784709286_98142829_100" src="https://github.com/user-attachments/assets/e11defaa-40b7-4a8d-ad3b-217e68c499d0" />
+<img width="99" height="55" alt="tumblr_2b280605c9c76bc44c059aa0db9b6343_79f26faa_100" src="https://github.com/user-attachments/assets/888c4433-025a-49bc-80e2-0bc2dfc94f02" />
+<img width="99" height="55" alt="tumblr_6bc2e36359b953843a401f4cc3e46e4e_ed35879c_100" src="https://github.com/user-attachments/assets/58b667cf-1495-47b5-85e4-b4126caad248" />
+
 
 
 
