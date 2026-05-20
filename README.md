@@ -31,3 +31,10 @@ What me and my gf Look like:
 
 <img width="100" height="100" alt="kzkCGT" src="https://github.com/user-attachments/assets/c886da51-28a6-4af1-a19d-8b58f9cda2d8" />
 
+Stop being you bru 
+
+<img width="133" height="173" alt="image" src="https://github.com/user-attachments/assets/b219088c-d9fc-4ddc-966a-0957a3668d21" />  <img width="173" height="173" alt="image" src="https://github.com/user-attachments/assets/ec53f753-8f73-407e-ab3e-1f5531b005ee" />
+<img width="160" height="173" alt="image" src="https://github.com/user-attachments/assets/fab169ab-8a89-4773-ac61-34d1ccd4d3cf" /> <img width="131" height="131" alt="image" src="https://github.com/user-attachments/assets/aa79c7c8-502d-45c1-856c-9405bf936156" /> <img width="179" height="169" alt="image" src="https://github.com/user-attachments/assets/d7fad70d-2a22-43be-ac03-fce0cb60b3aa" />
+
+
+
