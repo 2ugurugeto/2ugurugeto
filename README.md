@@ -38,3 +38,8 @@ Stop being you bru
 
 
 
+
+https://github.com/user-attachments/assets/d71997f6-c007-4858-837d-b9bd4c7561ee
+
+
+
