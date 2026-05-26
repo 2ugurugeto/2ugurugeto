@@ -11,7 +11,7 @@
  [pronoun card](https://en.pronouns.page/@Tofu_Sushi)
  
 
-[Guns.Lol](https://guns.lol/2ugurugeto) - [Rentry](https://rentry.co/MoshiTofu) - [My X account](https://x.com/2ugurugeto) - [Atat](https://2uguruget.atabook.org/) - [Carrd](https://2ugurugeto.carrd.co/)
+[Guns.Lol](https://guns.lol/2ugurugeto) - [My X account](https://x.com/2ugurugeto) - [Atat](https://2uguruget.atabook.org/) - [Carrd](https://2ugurugeto.carrd.co/)
 
 
 <img width="498" height="281" alt="f2f81fb86c9c5cb6b98f760b1fad2f78" src="https://github.com/user-attachments/assets/2cb9699a-6c57-45a0-bf4d-ec16bb3173db" />
