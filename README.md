@@ -1,25 +1,25 @@
 <div align="center">
 <img width="750" height="295" alt="image" src="https://github.com/user-attachments/assets/8fdde149-bba3-4b39-b531-5a92dc3a0f66" />
  
-[Wife](https://github.com/xzuzui) ִ ࣪𖤐 [WifeAta](https://xxzu.atabook.org/)
+[♡𝒲𝒾𝒻𝑒♡](https://github.com/xzuzui) ִ ࣪𖤐 [♡𝒲𝒾𝒻𝑒♡𝒶𝓉𝒶♡](https://xxzu.atabook.org/)
 
 [Guns.Lol](https://guns.lol/2ugurugeto) ִ ࣪𖤐 [AtaB](https://2uguruget.atabook.org/) ִ ࣪𖤐 [Carrd](https://2ugurugeto.carrd.co/) ִ ࣪𖤐 [TikTok](https://www.tiktok.com/@2ugurugeto)
 
-⠀⠀⠀⠀dni⠀⠀⠀⠀list⠀⠀⠀ִ ࣪𖤐⠀:
+
+⠀⠀⠀ᴅɴɪ⠀⠀⠀⠀ʟɪꜱᴛ⠀⠀⠀ִ ࣪𖤐⠀:
 
 
-ִ ࣪𖤐Weird⠀jjk⠀Fans⠀⠀ , ⠀⠀Proshipper 's ⠀⠀,⠀⠀Genshin  drama  people ⠀⠀.
+ִ࣪𖤐𝒲𝑒𝒾𝓇𝒹⠀𝒿𝒿𝓀⠀𝐹𝒶𝓃𝓈⠀⠀ , ⠀⠀𝒫𝓇𝑜𝓈𝒽𝒾𝓅𝓅𝑒𝓇 '𝓈 ⠀⠀,⠀⠀𝒢𝑒𝓃𝓈𝒽𝒾𝓃  𝒹𝓇𝒶𝓂𝒶  𝓅𝑒𝑜𝓅𝓁𝑒 ⠀⠀.
+
+ִ ࣪𖤐𝒮𝓉𝒶𝓇𝓉𝒾𝓃𝑔 𝒹𝓇𝒶𝓂𝒶⠀⠀,⠀⠀𝓇𝓊𝒹𝑒⠀⠀,⠀⠀𝒶𝓃𝓃𝑜𝓎𝒾𝓃𝑔⠀⠀,⠀⠀𝒹𝑜𝑒𝓈𝓃 '𝓉⠀⠀𝓇𝑒𝓈𝓅𝑒𝒸𝓉  𝒶𝓃𝓎𝑜𝓃𝑒     .
 
 
-ִ ࣪𖤐Starting drama⠀⠀,⠀⠀rude⠀⠀,⠀⠀annoying⠀⠀,⠀⠀doesn 't⠀⠀respect  anyone
+ɪɴᴛ⠀⠀ ʟɪꜱᴛ ⠀⠀ִ ࣪𖤐 :
 
+ִ ࣪𖤐𝒩𝒾𝒸𝑒⠀⠀,⠀⠀𝒽𝒶𝓅𝓅𝓎⠀⠀𝓅𝑒𝑜𝓅𝓁𝑒
 
-Int⠀⠀ List ⠀⠀ִ ࣪𖤐 :
+ִ࣪𖤐𝒲𝒾𝓁𝓁⠀⠀𝒸𝑜𝓂𝒻𝑜𝓇𝓉⠀⠀𝒶𝓉 ⠀⠀𝒜𝒩𝒴𝒪𝒩𝐸𝒮⠀⠀𝒹𝑜𝓌𝓃𝑒𝓈𝓉⠀⠀𝓉𝒾𝓂𝑒𝓈⠀⠀!!
 
-ִ ࣪𖤐Nice⠀⠀,⠀⠀happy⠀⠀people
+ִ࣪𖤐𝐹𝑒𝑒𝓁⠀⠀𝒻𝓇𝑒𝑒⠀⠀𝓉𝑜⠀⠀𝒾𝓃𝓉⠀⠀𝓌𝒾𝓉𝒽⠀⠀𝓂𝑒!
 
-ִ ࣪𖤐Will⠀⠀comfort⠀⠀at ⠀⠀ANYONES⠀⠀downest⠀⠀times⠀⠀!!
-
-ִ ࣪𖤐Feel⠀⠀free⠀⠀to⠀⠀int⠀⠀with⠀⠀me!
-
-ִ ࣪𖤐I⠀⠀can⠀⠀come⠀⠀across⠀⠀rude⠀⠀,⠀⠀but⠀⠀I⠀⠀mean⠀⠀well⠀⠀!!!
+ִ࣪𖤐𝐼⠀⠀𝒸𝒶𝓃⠀⠀𝒸𝑜𝓂𝑒⠀⠀𝒶𝒸𝓇𝑜𝓈𝓈⠀⠀𝓇𝓊𝒹𝑒⠀⠀,⠀⠀𝒷𝓊𝓉⠀⠀𝐼⠀⠀𝓂𝑒𝒶𝓃⠀⠀𝓌𝑒𝓁𝓁⠀⠀!!!
