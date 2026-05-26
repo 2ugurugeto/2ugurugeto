@@ -3,7 +3,7 @@
  
 [♡𝒲𝒾𝒻𝑒♡](https://github.com/xzuzui) ִ ࣪𖤐 [♡𝒲𝒾𝒻𝑒♡𝒶𝓉𝒶♡](https://xxzu.atabook.org/)
 
-[⋆𝒢𝓊𝓃𝓈.𝓁𝑜𝓁⋆](https://guns.lol/2ugurugeto) ִ ࣪𖤐 [⋆𝒶𝓉𝒶⋆](https://2uguruget.atabook.org/) ִ ࣪𖤐 ⋆[𝒸𝒶𝓇𝓇𝒹⋆](https://2ugurugeto.carrd.co/) ִ ࣪𖤐 [⋆𝒯𝒾𝓀𝓉𝑜𝓀⋆](https://www.tiktok.com/@2ugurugeto)
+[⋆𝒢𝓊𝓃𝓈.𝓁𝑜𝓁⋆](https://guns.lol/2ugurugeto) ִ ࣪𖤐 [⋆𝒶𝓉𝒶⋆](https://2uguruget.atabook.org/) ִ ࣪𖤐 ⋆[𝒸𝒶𝓇𝓇𝒹⋆](https://2ugurugeto.carrd.co/) ִ ࣪𖤐 [⋆𝒯𝒾𝓀𝓉𝑜𝓀⋆](https://www.tiktok.com/@2ugurugeto)  ࣪𖤐 [⋆𝒮𝓉𝓇𝒶𝓌𝒫⋆](https://2ugurugeto.straw.page/)  ࣪𖤐
 
 
 ⠀⠀⠀ᴅɴɪ⠀⠀⠀⠀ʟɪꜱᴛ⠀⠀⠀ִ ࣪𖤐⠀:
