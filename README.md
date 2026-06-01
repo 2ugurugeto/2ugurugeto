@@ -1,6 +1,6 @@
 
 
-&nbsp; <p align="center">  $\color{#b662d1}{\text{pllzzz}}$ [pt-stars0](https://github.com/pt-stars) $\color{#b662d1}{\text{Let me be Satoru Gojo !!! Im him trust!}}$ 
+
 
 <div align="center">
 
@@ -34,3 +34,4 @@ $\color{#b662d1}{\text{𖤐𝐼⠀⠀𝒸𝒶𝓃⠀⠀𝒸𝑜𝓂𝑒⠀⠀�
 
 <img width="543" height="217" alt="87fee894a415bd75f391225afc54c441" src="https://github.com/user-attachments/assets/53cdd10a-910c-4515-a793-fac9670da1a6" />
 
+&nbsp; <p align="center">  $\color{#b662d1}{\text{pllzzz}}$ [pt-stars0](https://github.com/pt-stars) $\color{#b662d1}{\text{Let me be Satoru Gojo !!! Im him trust!}}$ 
