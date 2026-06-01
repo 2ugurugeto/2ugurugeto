@@ -1,4 +1,8 @@
+
+
 <div align="center">
+  $\textcolor{rgb(8f5a54)}{\textsf{Plz let me be Satoru Gojo of pt :3}}$ 
+ 
 <img width="750" height="295" alt="image" src="https://github.com/user-attachments/assets/8fdde149-bba3-4b39-b531-5a92dc3a0f66" />
  
 [♡𝒲𝒾𝒻𝑒♡](https://github.com/xzuzui) ִ ࣪𖤐 [♡𝒲𝒾𝒻𝑒♡𝒶𝓉𝒶♡](https://xxzu.atabook.org/)
