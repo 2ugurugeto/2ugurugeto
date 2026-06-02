@@ -4,7 +4,8 @@
 
 <div align="center">
 
-<img width="750" height="295" alt="image" src="https://github.com/user-attachments/assets/8fdde149-bba3-4b39-b531-5a92dc3a0f66" />
+<img width="520" height="401" alt="Screenshot 2026-06-02 at 15-59-12 Discord @Sushi" src="https://github.com/user-attachments/assets/95920ac1-5648-4ee4-a523-3798b58e0d2b" />
+
  
 [♡𝒲𝒾𝒻𝑒♡](https://github.com/xzuzui) ִ ࣪𖤐 [♡𝒲𝒾𝒻𝑒♡𝒶𝓉𝒶♡](https://xxzu.atabook.org/)
 
