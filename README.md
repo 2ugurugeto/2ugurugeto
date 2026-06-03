@@ -3,6 +3,16 @@
 <img width="1200" height="265" alt="image" src="https://github.com/user-attachments/assets/6e7933c7-f1fb-4f29-8d26-f86ee7509aab" />
 
 
+<div align="center">
+ 
+   Close Friends    
+
+   ~     loki      ~        Zuu       ~  
+   
+   ~      Ramen        ~        Lily        ~
+
+
+<div align="center">
  
 [♡𝒲𝒾𝒻𝑒♡](https://github.com/xzuzui) ִ ࣪𖤐 [♡𝒲𝒾𝒻𝑒♡𝒶𝓉𝒶♡](https://xxzu.atabook.org/)
 
