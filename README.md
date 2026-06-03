@@ -4,12 +4,18 @@
 
 
 <div align="center">
- 
-   Close Friends    
 
-   ~     loki      ~        Zuu       ~  
-   
-   ~      Ramen        ~        Lily        ~
+   $\color{#203551}{\text{Close Friends  :}}$
+
+
+<div align="center">
+ 
+   $\color{#203551}{\text{   ~     loki      ~        Zuu       ~  }}$
+
+<div align="center">
+ 
+   $\color{#203551}{\text{   ~      Ramen        ~        Lily        ~}}$
+
 
 
 <div align="center">
