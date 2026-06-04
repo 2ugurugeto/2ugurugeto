@@ -6,16 +6,16 @@
 
 <div align="center">
 
-   $\color{#203551}{\text{Close Friends  :}}$
+   $\color{#c0bfbf}{\text{Close Friends  :}}$
 
 
 <div align="center">
  
-   $\color{#203551}{\text{   ~     loki      ~        Zuu       ~  }}$
+   $\color{#c0bfbf}{\text{   ~     loki   ~    ࣪𖤐    ~    Zuu       ~  }}$
 
 <div align="center">
  
-   $\color{#203551}{\text{   ~      Ramen        ~        Lily        ~}}$
+   $\color{#c0bfbf}{\text{   ~      Ramen     ~     ࣪𖤐     ~    Lily        ~}}$
 
 
 
@@ -25,26 +25,26 @@
 
 [Guns.lol](https://guns.lol/2ugurugeto) ִ ࣪𖤐 [新book⠀](https://2uguruget.atabook.org/) ִ ࣪𖤐 ⋆[Carrd](https://2ugurugeto.carrd.co/) ִ ࣪𖤐 [Tiktok](https://www.tiktok.com/@2ugurugeto)  ࣪𖤐 [Spage](https://2ugurugeto.straw.page/)  ࣪𖤐 [Prn](https://en.pronouns.page/@Suguruu_Geto) 𖤐 
 
-$\color{#203551}{\text{⠀ᴅɴɪ⠀⠀⠀⠀ʟɪꜱᴛ⠀⠀⠀ִ ࣪𖤐⠀:}}$
+$\color{#c0bfbf}{\text{⠀ᴅɴɪ⠀⠀⠀⠀ʟɪꜱᴛ⠀⠀⠀ִ ࣪𖤐⠀:}}$
 
-$\color{#203551}{\text{𖤐𝒲𝑒𝒾𝓇𝒹⠀𝒿𝒿𝓀⠀𝐹𝒶𝓃𝓈⠀⠀ , ⠀⠀𝒫𝓇𝑜𝓈𝒽𝒾𝓅𝓅𝑒𝓇 '𝓈 ⠀⠀,⠀⠀𝒢𝑒𝓃𝓈𝒽𝒾𝓃  𝒹𝓇𝒶𝓂𝒶  𝓅𝑒𝑜𝓅𝓁𝑒 ⠀⠀.}}$
+$\color{#c0bfbf}{\text{𖤐𝒲𝑒𝒾𝓇𝒹⠀𝒿𝒿𝓀⠀𝐹𝒶𝓃𝓈⠀⠀ , ⠀⠀𝒫𝓇𝑜𝓈𝒽𝒾𝓅𝓅𝑒𝓇 '𝓈 ⠀⠀,⠀⠀𝒢𝑒𝓃𝓈𝒽𝒾𝓃  𝒹𝓇𝒶𝓂𝒶  𝓅𝑒𝑜𝓅𝓁𝑒 ⠀⠀.}}$
 ִ࣪
 
-$\color{#203551}{\text{ ࣪𖤐𝒮𝓉𝒶𝓇𝓉𝒾𝓃𝑔 𝒹𝓇𝒶𝓂𝒶⠀⠀,⠀⠀𝓇𝓊𝒹𝑒⠀⠀,⠀⠀𝒶𝓃𝓃𝑜𝓎𝒾𝓃𝑔⠀⠀,⠀⠀𝒹𝑜𝑒𝓈𝓃 '𝓉⠀⠀𝓇𝑒𝓈𝓅𝑒𝒸𝓉  𝒶𝓃𝓎𝑜𝓃𝑒     .}}$
+$\color{#c0bfbf}{\text{ ࣪𖤐𝒮𝓉𝒶𝓇𝓉𝒾𝓃𝑔 𝒹𝓇𝒶𝓂𝒶⠀⠀,⠀⠀𝓇𝓊𝒹𝑒⠀⠀,⠀⠀𝒶𝓃𝓃𝑜𝓎𝒾𝓃𝑔⠀⠀,⠀⠀𝒹𝑜𝑒𝓈𝓃 '𝓉⠀⠀𝓇𝑒𝓈𝓅𝑒𝒸𝓉  𝒶𝓃𝓎𝑜𝓃𝑒     .}}$
 ִ
 
-$\color{#203551}{\text{ɪɴᴛ⠀⠀ ʟɪꜱᴛ ⠀⠀ִ ࣪𖤐 :}}$
+$\color{#c0bfbf}{\text{ɪɴᴛ⠀⠀ ʟɪꜱᴛ ⠀⠀ִ ࣪𖤐 :}}$
 
-$\color{#203551}{\text{ ࣪𖤐𝒩𝒾𝒸𝑒⠀⠀,⠀⠀𝒽𝒶𝓅𝓅𝓎⠀⠀𝓅𝑒𝑜𝓅𝓁𝑒}}$
+$\color{#c0bfbf}{\text{ ࣪𖤐𝒩𝒾𝒸𝑒⠀⠀,⠀⠀𝒽𝒶𝓅𝓅𝓎⠀⠀𝓅𝑒𝑜𝓅𝓁𝑒}}$
 
 
-$\color{#203551}{\text{𖤐𝒲𝒾𝓁𝓁⠀⠀𝒸𝑜𝓂𝒻𝑜𝓇𝓉⠀⠀𝒶𝓉 ⠀⠀𝒜𝒩𝒴𝒪𝒩𝐸𝒮⠀⠀𝒹𝑜𝓌𝓃𝑒𝓈𝓉⠀⠀𝓉𝒾𝓂𝑒𝓈⠀⠀!!}}$
+$\color{#c0bfbf}{\text{𖤐𝒲𝒾𝓁𝓁⠀⠀𝒸𝑜𝓂𝒻𝑜𝓇𝓉⠀⠀𝒶𝓉 ⠀⠀𝒜𝒩𝒴𝒪𝒩𝐸𝒮⠀⠀𝒹𝑜𝓌𝓃𝑒𝓈𝓉⠀⠀𝓉𝒾𝓂𝑒𝓈⠀⠀!!}}$
 ִ࣪
 
-$\color{#203551}{\text{𖤐𝐹𝑒𝑒𝓁⠀⠀𝒻𝓇𝑒𝑒⠀⠀𝓉𝑜⠀⠀𝒾𝓃𝓉⠀⠀𝓌𝒾𝓉𝒽⠀⠀𝓂𝑒!}}$
+$\color{#c0bfbf}{\text{𖤐𝐹𝑒𝑒𝓁⠀⠀𝒻𝓇𝑒𝑒⠀⠀𝓉𝑜⠀⠀𝒾𝓃𝓉⠀⠀𝓌𝒾𝓉𝒽⠀⠀𝓂𝑒!}}$
 ִ࣪
 
-$\color{#203551}{\text{𖤐𝐼⠀⠀𝒸𝒶𝓃⠀⠀𝒸𝑜𝓂𝑒⠀⠀𝒶𝒸𝓇𝑜𝓈𝓈⠀⠀𝓇𝓊𝒹𝑒⠀⠀,⠀⠀𝒷𝓊𝓉⠀⠀𝐼⠀⠀𝓂𝑒𝒶𝓃⠀⠀𝓌𝑒𝓁𝓁⠀⠀!!!}}$
+$\color{#c0bfbf}{\text{𖤐𝐼⠀⠀𝒸𝒶𝓃⠀⠀𝒸𝑜𝓂𝑒⠀⠀𝒶𝒸𝓇𝑜𝓈𝓈⠀⠀𝓇𝓊𝒹𝑒⠀⠀,⠀⠀𝒷𝓊𝓉⠀⠀𝐼⠀⠀𝓂𝑒𝒶𝓃⠀⠀𝓌𝑒𝓁𝓁⠀⠀!!!}}$
 ִ࣪
 
 <img width="764" height="263" alt="image" src="https://github.com/user-attachments/assets/36918b67-f9f8-4e09-a984-7810d71d176e" />
