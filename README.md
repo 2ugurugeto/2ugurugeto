@@ -40,6 +40,9 @@ $\color{#c0bfbf}{\text{𖤐𝒲𝑒𝒾𝓇𝒹⠀𝒿𝒿𝓀⠀𝐹𝒶𝓃�
 ִ࣪
 
 $\color{#c0bfbf}{\text{ ࣪𖤐𝒮𝓉𝒶𝓇𝓉𝒾𝓃𝑔 𝒹𝓇𝒶𝓂𝒶⠀⠀,⠀⠀𝓇𝓊𝒹𝑒⠀⠀,⠀⠀𝒶𝓃𝓃𝑜𝓎𝒾𝓃𝑔⠀⠀,⠀⠀𝒹𝑜𝑒𝓈𝓃 '𝓉⠀⠀𝓇𝑒𝓈𝓅𝑒𝒸𝓉  𝒶𝓃𝓎𝑜𝓃𝑒     .}}$
+
+
+<img width="97" height="90" alt="image" src="https://github.com/user-attachments/assets/e66d3582-8b50-403e-8dda-b351e4074f07" />
 ִ
 
 $\color{#c0bfbf}{\text{ɪɴᴛ⠀⠀ ʟɪꜱᴛ ⠀⠀ִ ࣪𖤐 :}}$
