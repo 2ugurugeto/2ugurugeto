@@ -18,6 +18,10 @@
    $\color{#c0bfbf}{\text{   ~      Ramen     ~     ࣪𖤐     ~    Lily        ~}}$
 
 
+<img width="561" height="158" alt="image" src="https://github.com/user-attachments/assets/04a610e3-6b04-4ce9-9f40-058fc0bd734e" />
+
+
+
 
 <div align="center">
  
