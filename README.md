@@ -25,6 +25,11 @@
 
 [Guns.lol](https://guns.lol/2ugurugeto) ִ ࣪𖤐 [新book⠀](https://2uguruget.atabook.org/) ִ ࣪𖤐 ⋆[Carrd](https://2ugurugeto.carrd.co/) ִ ࣪𖤐 [Tiktok](https://www.tiktok.com/@2ugurugeto)  ࣪𖤐 [Spage](https://2ugurugeto.straw.page/)  ࣪𖤐 [Prn](https://en.pronouns.page/@Suguruu_Geto) 𖤐 
 
+
+<img width="569" height="163" alt="image" src="https://github.com/user-attachments/assets/b418098c-8025-4bc3-b966-7ff86f21adec" />
+
+
+
 $\color{#c0bfbf}{\text{⠀ᴅɴɪ⠀⠀⠀⠀ʟɪꜱᴛ⠀⠀⠀ִ ࣪𖤐⠀:}}$
 
 $\color{#c0bfbf}{\text{𖤐𝒲𝑒𝒾𝓇𝒹⠀𝒿𝒿𝓀⠀𝐹𝒶𝓃𝓈⠀⠀ , ⠀⠀𝒫𝓇𝑜𝓈𝒽𝒾𝓅𝓅𝑒𝓇 '𝓈 ⠀⠀,⠀⠀𝒢𝑒𝓃𝓈𝒽𝒾𝓃  𝒹𝓇𝒶𝓂𝒶  𝓅𝑒𝑜𝓅𝓁𝑒 ⠀⠀.}}$
