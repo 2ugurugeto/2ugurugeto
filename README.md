@@ -46,6 +46,5 @@ $\color{#203551}{\text{𖤐𝐹𝑒𝑒𝓁⠀⠀𝒻𝓇𝑒𝑒⠀⠀𝓉𝑜�
 $\color{#203551}{\text{𖤐𝐼⠀⠀𝒸𝒶𝓃⠀⠀𝒸𝑜𝓂𝑒⠀⠀𝒶𝒸𝓇𝑜𝓈𝓈⠀⠀𝓇𝓊𝒹𝑒⠀⠀,⠀⠀𝒷𝓊𝓉⠀⠀𝐼⠀⠀𝓂𝑒𝒶𝓃⠀⠀𝓌𝑒𝓁𝓁⠀⠀!!!}}$
 ִ࣪
 
-<img width="543" height="217" alt="87fee894a415bd75f391225afc54c441" src="https://github.com/user-attachments/assets/53cdd10a-910c-4515-a793-fac9670da1a6" />
+<img width="764" height="263" alt="image" src="https://github.com/user-attachments/assets/36918b67-f9f8-4e09-a984-7810d71d176e" />
 
-&nbsp; <p align="center">  $\color{#203551}{\text{pllzzz}}$ [pt-stars0](https://github.com/pt-stars) $\color{#203551}{\text{Let me be Satoru Gojo !!! Im him trust!}}$ 
