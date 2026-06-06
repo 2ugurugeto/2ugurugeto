@@ -61,3 +61,11 @@ $\color{#c0bfbf}{\text{𖤐𝐼⠀⠀𝒸𝒶𝓃⠀⠀𝒸𝑜𝓂𝑒⠀⠀�
 
 <img width="764" height="263" alt="image" src="https://github.com/user-attachments/assets/36918b67-f9f8-4e09-a984-7810d71d176e" />
 
+
+my yt pfp  <img width="42" height="43" alt="image" src="https://github.com/user-attachments/assets/f110967e-c492-481a-b6c3-0fb2b0265ad5" />
+
+
+
+<img width="283" height="320" alt="ezgif-30af7b0b7ae4a8e8" src="https://github.com/user-attachments/assets/cc505082-7af8-4d07-b2b4-32a3547457b6" />
+
+
